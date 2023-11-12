@@ -1,6 +1,5 @@
 -  Hi, I’m @Inuch 👋
 -  I’m interested in headpieces design. 
--  I’m currently learning coding.🌱
 - 📫 in.ezcurra@gmail.com
 - www.inesdeezcurra.com
 
